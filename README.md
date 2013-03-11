@@ -21,6 +21,7 @@ Você irá precisar de:
 * Coragem e Humildade para aprender =)
 
 
-
+Dúvidas veja o vídeo:
+http://www.youtube.com/watch?v=MzyV2_3oETg
 
 _Dúvidas e sugestões são SEMPRE bem-vindas_
